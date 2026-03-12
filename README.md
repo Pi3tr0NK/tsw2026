@@ -1,4 +1,4 @@
-# tsw2026 AIUTOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+# tsw2026 AIUTOOOOOOOOO
 
 ciaooo
 isdjxfjil hsdifgui sdgifl hsk
